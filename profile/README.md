@@ -1,7 +1,6 @@
-## Hi there 👋
+## Hi there 👋 សួរស្តីពីចំងាយ :)
 
-សួរស្តីពីចំងាយ :)
-
+[![facebook](http://i.imgur.com/fep1WsG.png)](https://www.facebook.com/profile.php?id=61558741681277)
 
 <!--
 
